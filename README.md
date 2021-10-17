@@ -1,8 +1,8 @@
 - 👋 Hi, I’m MOCHIzera
-- 📚 I’m currently learning: ython
+- 📚 I’m currently learning: Python
 - 📫 How to reach me? Discord MOCHI#4369
 - 😎 Pronouns: He-His
-- 😍 Favorite anime's: JoJo, Naruto, Kimetsu no Yaiba
+- 😍 Favorite anime's: JoJo, Naruto, Demon Slayer, Attack on Titan
 - 🎙Favorite Singer: Oliver Tree
 ##
 
